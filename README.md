@@ -2,4 +2,3 @@
 Suneo is joined.
 Jaian is joined.
 Dora is joined.
-Dorami is joined.
